@@ -1,3 +1,3 @@
-# GIGA
+# Куртс Glo academ
 
 Тен Денис
